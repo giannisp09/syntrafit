@@ -78,6 +78,6 @@ We’ll update this document as needed. Check back here for the Last Updated dat
 
 ⸻
 
-🔗 Contact Us: privacy@syntrafit.com
+🔗 Contact Us: info@syntrafit.com
 
 Last Updated: May 19, 2025
